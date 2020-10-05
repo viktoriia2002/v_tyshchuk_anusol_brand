@@ -1,5 +1,3 @@
-# v_tyshchuk_anusol_brand
-
 # ANUSOL
 Fast and long-lasting pain relief
 Anusol is a new beer brand that is created to take care of your feelings and mood at any time of the day. The main goal of the product is to create a comfortable environment, quick relaxation and a long-lasting effect from use.
